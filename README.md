@@ -1,0 +1,2 @@
+# IdeaPad_5_2in1_Copilot_GDN_1_728x90
+IdeaPad_5_2in1_Copilot_GDN_1_728x90
